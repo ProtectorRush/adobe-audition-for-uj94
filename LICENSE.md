@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Audition for macOS script with elite Adobe Audition for macOS Script | scene-transitions + proxy-editing. Featuring scene-transitions and proxy-editing,
 
 
 
